@@ -7,4 +7,4 @@
 this is not a repository of stolen assets these are assets made by me or the development team of Extreme Energy Incorporated **If the assets are made by other people on the development team we have explicit permission from them to post the assets**
 
 ‎ 
-*If your asset was posted on here by mistake please contact ZV800#4382 on discord.*
+*If your asset was posted on here by mistake please contact ZV800#0001 on discord.*
